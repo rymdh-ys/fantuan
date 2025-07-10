@@ -3,7 +3,7 @@
 饭团影院是一个提供丰富影视资源的在线观看平台，用户可以在这里免费观看最新电影、热播电视剧、综艺、动漫等多种类型的影视作品。该平台以高清无广告、蓝光1080P画质、流畅秒播不卡顿为特色，并且支持安卓、iOS、TV三端，满足不同用户的观影需求。饭团影院的界面简洁，操作方便，资源分类清晰，用户可以轻松找到自己想看的内容。
 
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/14388.html" target="_blank" ><strong>饭团影院最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshizaixiankan" target="_blank" ><strong>影视资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://yingshi.xxsnav.com/" target="_blank" ><strong>影视网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
